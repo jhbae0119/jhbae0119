@@ -1,3 +1,3 @@
 # jhbae0119
 
-* just do it! 👉
+👉 just do it! 
